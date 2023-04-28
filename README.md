@@ -32,7 +32,7 @@ Basic skills
 
 
 Ukrainian — native
-English — C2 https://efset.org/cert/wzDtnb
+English — C2 
 
 J O B  E X P E R I E N C E
 SENIOR ENGINEER July 2010 - 2013 - 3 years 4 months
